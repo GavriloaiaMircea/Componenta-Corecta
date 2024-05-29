@@ -1,0 +1,2 @@
+# Componenta Corecta
+ 
